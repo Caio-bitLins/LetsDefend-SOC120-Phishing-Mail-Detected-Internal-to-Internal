@@ -36,7 +36,9 @@ Como nesse e-mail específico não há anexos ou urls de sites. Não tem como es
 
 ![Captura de Tela 2024-08-16 às 12 29 26](https://github.com/user-attachments/assets/39f1fec3-1c99-460e-b4fa-443f4822b21d)
 
-Obrigado por ler até aqui!
+
+# Obrigado por ler até aqui! <3
+<img src="https://media.tenor.com/qVKlQMB2DpsAAAAM/hacker-hacking.gif" width="230"></h2>
 
 
 
